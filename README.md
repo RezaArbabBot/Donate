@@ -28,9 +28,6 @@ TJRzuRBTZ1jtTsuahChc9JfwdBHBKarkFU
 
 ltc1qc6uladcwztq4qd3ejnxkkwtf7a35vk9tpql7ma
 
-💎 TON
-
-UQA9oP_zb_W5kKfUmiuFpLyB2_kPcAzEX4vj34-g1Uyo80X
 
 ---
 
